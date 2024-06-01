@@ -1,1 +1,1 @@
-# Zindalx00.github.io
+# zindalx00.github.io
